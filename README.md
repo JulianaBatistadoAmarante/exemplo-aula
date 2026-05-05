@@ -1,20 +1,22 @@
-# exemplo-aula 
-Quando eu era criança, eu e meus dois irmãos resolvemos que éramos “grandes inventores”. A ideia do dia? Criar um “refrigerante caseiro secreto”.
 
-A receita era simples (na nossa cabeça genial): pegamos tudo que parecia líquido e interessante na cozinha. Tinha suco de laranja, refrigerante sem gás que sobrou, um pouco de café (não pergunte), leite, e… molho de tomate. Misturamos tudo numa jarra e demos aquela mexida solene, como se estivéssemos num laboratório científico.
+Brianna nasceu em uma pequena vila cercada por colinas verdes e ventos frios, onde a vida era dura e simples. Filha de camponeses, cresceu entre plantações, ovelhas e histórias antigas contadas ao redor do fogo — histórias de guerreiros, reis e criaturas das montanhas.
 
-O problema começou quando decidimos que alguém precisava provar. Ficamos uns bons 5 minutos discutindo quem seria o “corajoso”. No final, fizemos um acordo: cada um tomaria um gole ao mesmo tempo.
+Desde pequena, Brianna sentia que não pertencia apenas àquela rotina. Enquanto outros temiam a escuridão das florestas, ela caminhava por elas. Enquanto outros aceitavam o destino, ela o questionava.
 
-Contamos até três.
+Certo inverno, uma guerra chegou à sua terra. Senhores feudais disputavam territórios, e soldados atravessaram vilas como tempestades, levando comida, casas… e vidas. A vila de Brianna foi destruída em uma única noite de fogo.
 
-Um tomou e saiu correndo pro banheiro.
-O outro começou a rir tanto que cuspiu tudo na mesa.
-E eu… tentei fingir que estava tudo bem, só pra não parecer fraco, mas fiz uma cara tão horrível que entreguei na hora.
+Mas Brianna sobreviveu.
 
-O pior não foi nem o gosto. Foi quando nossa mãe entrou na cozinha, viu a bagunça, a jarra com aquela cor suspeita e perguntou:
+Sozinha, com nada além de coragem e uma antiga adaga de seu pai, ela atravessou montanhas e vales. Aprendeu a lutar, a caçar e a sobreviver. Ao longo do caminho, ajudou viajantes, enfrentou ladrões e conquistou aliados inesperados — um ferreiro exilado, uma curandeira misteriosa e um jovem que fugia da guerra.
 
-“Quem foi o cientista aqui?”
+Com o tempo, seu nome começou a ser sussurrado: a camponesa que não se curvou.
 
-A gente apontou um pro outro tão rápido que parecia coreografia.
+Anos depois, Brianna retornou à sua terra, não como vítima, mas como líder. Reuniu aqueles que haviam perdido tudo e liderou uma revolta contra os senhores que destruíram sua vila.
 
-No fim, ninguém ganhou prêmio de invenção… mas a gente nunca mais misturou molho de tomate com leite — pelo menos não de propósito.
+Na batalha final, sob um céu cinzento e ventos cortantes, Brianna lutou não por vingança, mas por justiça. E venceu.
+
+A antiga vila foi reconstruída — mais forte, mais unida. E embora nunca tenha desejado poder, Brianna tornou-se símbolo de resistência.
+
+Dizem que, até hoje, nas terras altas, quando o vento sopra forte entre as colinas, ele carrega o nome dela.
+
+Brianna, a camponesa que se tornou lenda.
