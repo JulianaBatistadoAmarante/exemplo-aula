@@ -20,3 +20,5 @@ A antiga vila foi reconstruída — mais forte, mais unida. E embora nunca tenha
 Dizem que, até hoje, nas terras altas, quando o vento sopra forte entre as colinas, ele carrega o nome dela.
 
 Brianna, a camponesa que se tornou lenda.
+
+oi
