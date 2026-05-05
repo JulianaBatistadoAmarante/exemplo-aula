@@ -1,5 +1,4 @@
-Não gostei da histótia da Patricia...
-vou fazer minha própria história...
+
 Brianna nasceu em uma pequena vila cercada por colinas verdes e ventos frios, onde a vida era dura e simples. Filha de camponeses, cresceu entre plantações, ovelhas e histórias antigas contadas ao redor do fogo — histórias de guerreiros, reis e criaturas das montanhas.
 
 Desde pequena, Brianna sentia que não pertencia apenas àquela rotina. Enquanto outros temiam a escuridão das florestas, ela caminhava por elas. Enquanto outros aceitavam o destino, ela o questionava.
