@@ -21,6 +21,20 @@ Dizem que, até hoje, nas terras altas, quando o vento sopra forte entre as coli
 
 Brianna, a camponesa que se tornou lenda.
 
+oi
+Nas colinas frias da Escócia medieval, vivia uma jovem camponesa chamada Mairi. Ela morava em uma pequena cabana de pedra perto de um lago coberto por névoa, onde o vento carregava o cheiro da turfa que queimava nas lareiras.
+
+Todos os dias, antes do nascer do sol, Mairi caminhava pelos campos úmidos levando um cesto de cevada e cuidando das poucas ovelhas de sua família. A vida era dura: os invernos pareciam intermináveis, e os impostos cobrados pelo senhor local deixavam pouco alimento para os aldeões.
+
+Mesmo assim, Mairi tinha algo raro — sabia ler. Um velho monge viajante lhe ensinara as letras anos antes, em troca de pão e leite. À noite, enquanto os outros dormiam, ela copiava histórias antigas em pedaços de pergaminho gasto, sonhando com terras além das montanhas.
+
+Certa tarde, soldados chegaram à aldeia anunciando guerra entre clãs rivais. Muitos homens partiram, incluindo o irmão de Mairi. Com medo de nunca mais vê-lo, ela decidiu atravessar as Highlands para entregar uma mensagem de paz ao chefe de outro clã, carregando apenas um manto de lã e coragem.
+
+Durante dias enfrentou chuva, lama e lobos ao longe. Quando finalmente chegou ao castelo de madeira do clã rival, os guardas riram ao ver uma simples camponesa pedindo audiência. Mas Mairi falou com firmeza sobre as famílias que passavam fome e sobre irmãos que morreriam por uma disputa antiga demais para lembrar.
+
+Dizem que suas palavras tocaram o coração do velho chefe. Naquela primavera, uma trégua foi assinada entre os clãs, e a aldeia de Mairi teve seu primeiro verão em paz depois de muitos anos.
+
+Muito tempo depois, os bardos ainda contavam a história da camponesa que não carregava espada, mas mudou o destino de sua terra apenas com coragem e palavras.
 Brinna quis ir além, ela queria se tornar a rainha do reino. Ela elaborou um plano para matar a rainha e tomar o lugar dela. 
 
 
